@@ -1,5 +1,4 @@
 
-Frank Ocean - Self Control
 
 <!---
 - 👋 Hi, I’m @blonded99
